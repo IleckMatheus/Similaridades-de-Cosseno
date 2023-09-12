@@ -1,0 +1,1 @@
+# Similaridades-de-Cosseno
